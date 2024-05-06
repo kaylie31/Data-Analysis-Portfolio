@@ -43,9 +43,9 @@ In this section I will list data analytics projects briefly describing the techn
 
 
 ## Education
-University of
-Master of 
-Dec 2022 - Dec 2024
+University of Saskatchewan
+Doctor of Pharmacy
+
 
 
 
